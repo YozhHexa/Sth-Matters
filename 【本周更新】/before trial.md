@@ -4,10 +4,10 @@
 > Author: #Anonymity
 > Last update: [编辑于 2025-05-10]
 > Link:
-> Category: #【答集】/04-社科答集 
+> Category: #【答集】/04-社科答集
 > Tag:
 > 评论区:
-> 泛讨论:  
+> 泛讨论:
 
 美国的律师行业有一个基本守则——“don‘t go to trial”。
 

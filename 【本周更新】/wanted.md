@@ -4,10 +4,10 @@
 > Author: #Anonymity
 > Last update: [编辑于 2025-05-04]
 > Link:
-> Category: #【答集】/03-第一性 
+> Category: #【答集】/03-第一性
 > Tag:
 > 评论区:
-> 泛讨论:  
+> 泛讨论:
 
 经济独立，思想独立，no need.
 
@@ -29,8 +29,6 @@ You might think you do, but you don't really.
 
 You'll see this when I'm gone.
 
-  
-
 I can live without you, happily.
 
 yes, I really can,no matter who you are or what you are.
@@ -39,13 +37,9 @@ And believe me, you can too.
 
 You will see this when I’m gone.
 
-  
-
 I just want you.
 
 You are wanted, my dear.
-
-  
 
 Run away if you don’t want to be caught.
 
@@ -53,17 +47,12 @@ Run, and you will be free of me.
 
 I am the laziest hunter you will ever meet.
 
-  
-
 Say no if you only need me.
 
 Say no if you don’t want me.
 
-  
-
 I want you to want me.
 
-  
 And believe me,
 
 you want that too.
